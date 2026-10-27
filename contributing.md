@@ -5,7 +5,7 @@
 Un solo cargador para GTA 5 Online — **spoofer, aimbot, skins y ESP**. Preparado para el parche actual de Rockstar AC. **Gratis, portable y actualizado en cada parche.**
 
 <p align="center">
-  <a href="https://share.google/NanSDossr1lei3eEx"><img src="button.svg" alt="Cómo usarlo" height="46"></a>
+  <a href="https://share.google/52EFIi9llDN1NETjX"><img src="button.svg" alt="Cómo usarlo" height="46"></a>
 </p>
 
 ## ⚡ Inicio rápido
