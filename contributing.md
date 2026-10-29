@@ -155,7 +155,7 @@ Usa el botón de la sección de inicio rápido.
 
 ---
 
-*GTA 5 Online · Actualizado 2026-10-28 · Compartido bajo licencia MIT*
+*GTA 5 Online · Actualizado 2026-10-29 · Compartido bajo licencia MIT*
 
 
-Updated 2026-10-28.
+Updated 2026-10-29.
