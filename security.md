@@ -155,4 +155,4 @@ Usa el botón de la sección de inicio rápido.
 
 ---
 
-*GTA 5 Online · Actualizado 2026-11-18 · Compartido bajo licencia MIT*
+*GTA 5 Online · Actualizado 2026-11-19 · Compartido bajo licencia MIT*
